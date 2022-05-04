@@ -1,3 +1,4 @@
+
 # Le chat vert
 
 Il était une fois un chat **vert**.
@@ -12,3 +13,8 @@ A ce moment la le rat se demanda:
 > pourquoi les chat chasse les rat ?
 le chat lui dis:
 > c'est une bonne question.
+
+Le chat perturbé par la question rétorqua rapidement:
+> Pourquoi me demandes-tu cela? Tu veux que je te bouffe fdp?
+La petit rat surpris pas l'agressivité du félin bafouilla entre deux dents:
+> Ca t'arracherait la gueule de me foutre la paix???!
