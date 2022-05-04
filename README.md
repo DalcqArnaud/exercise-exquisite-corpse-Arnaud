@@ -18,3 +18,7 @@ Le chat perturbé par la question rétorqua rapidement:
 > Pourquoi me demandes-tu cela? Tu veux que je te bouffe fdp?
 La petit rat surpris pas l'agressivité du félin bafouilla entre deux dents:
 > Ca t'arracherait la gueule de me foutre la paix???!
+
+Une chatte merveilleuse se présenta, tous les deux se tournèrent oubliant leur querelle.
+Elle marchait d'une manière si gacieuse qu'ils en perdirent leur latin.
+C'est depuis ce jour que chats et rats dansent ensemble, sans pouvoir parler, encore sous l'effet de la merveille.
